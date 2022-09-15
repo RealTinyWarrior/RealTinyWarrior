@@ -1,0 +1,4 @@
+- He/Him 💎
+- Call me Tiny ☕
+- JavaScript Dev ☢️
+- Birthday on 25th September 🥶
